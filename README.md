@@ -1,0 +1,1 @@
+Computer support Polishchuk Oleksandr
